@@ -18,3 +18,9 @@ We have no experience with MSFS2020 SDK so we don't know about following stuffs
   The max speed, engine performance, wing extension, etc?
 Maybe you should know about this physics, etc.
 So, we are in need of professional who can guide us how to proceed, too.
+
+
+If you think you can handle, we can discuss further
+my email is erion.p.012@gmail.com
+Skype: live:.cid.9714c8897a3898cb
+Telegram: https://t.me/j_w_001
